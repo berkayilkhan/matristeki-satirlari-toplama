@@ -1,0 +1,1 @@
+# matristeki-satirlari-toplama
